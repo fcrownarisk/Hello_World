@@ -1,0 +1,1 @@
+DirectCast(https://store.steampowered.com/app/275850/No_Mans_Sky/)
